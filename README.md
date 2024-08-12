@@ -8,4 +8,6 @@ Meu Nome e Yuri Nunes
 
 -Adoro o espaço é os mistérios que têm nele 
 
+
+
 ![](https://tenor.com/pt-BR/view/me-space-walk-gif-10802232)
