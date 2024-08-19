@@ -1,6 +1,5 @@
 ### Bem Vindo ao meu perfil⭐☄️
 
-Meu Nome e Yuri Nunes
 
 -Estou estudando na [Alura](https://www.alura.com.br)
 
